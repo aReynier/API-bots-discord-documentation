@@ -1,4 +1,4 @@
-## Objet : Remerciements et compte-rendu suite à notre rendez-vous du _30-10-24_
+## Objet : Remerciements et compte-rendu suite à notre rendez-vous du _19-02-25_
 
 Bonjour Claire et Benjamin,
 
